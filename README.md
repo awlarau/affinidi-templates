@@ -1,2 +1,0 @@
-# affinidi-templates
-# affinidi-templates
